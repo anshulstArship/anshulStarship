@@ -10,8 +10,8 @@ About Me:
 - 🪄 You can reach out to me on - anshul.tyagi306@gmail.com
 
 
-- 📘 Reading List
-- 📖 The Psychology of Money by Morgan Housel
+📘 Reading List : 
+📖 The Psychology of Money by Morgan Housel
 
 
 
